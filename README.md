@@ -1,0 +1,40 @@
+# Billie Eilish – Male Fantasy
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:18.52] Home alone, trying not to eat
+[00:22.47] Distract myself with pornography
+[00:26.89] I hate the way she looks at me
+[00:33.80] I can't stand the dialogue, she would never be
+[00:39.62] That satisfied, it's a male fantasy
+[00:44.02] I'm going back to therapy
+[00:56.52] 
+[00:51.22] 'Cause I loved you then, and I love you now
+[00:55.70] And I don't know how
+[00:59.89] Guess it's hard to know when nobody else comes around
+[01:08.76] If I'm getting over you
+[01:13.47] Or just pretending to
+[01:18.04] Be alright, convince myself I hate you
+[01:37.04] 
+[01:33.01] (Want me to put it here?)
+[01:34.87] (Okay)
+[01:37.87] 
+[01:38.31] I got a call from a girl I used to know
+[01:42.82] We were inseparable years ago
+[01:46.54] Thought we'd get along, but it wasn't so
+[01:53.84] And it's all I think about when I'm behind the wheel
+[02:00.01] I worry this is how I'm always gonna feel
+[02:04.25] But nothing lasts, I know the deal
+[02:21.25] 
+[02:11.28] But I loved you then, and I love you now
+[02:15.63] And I don't know how
+[02:19.86] Guess it's hard to know when nobody else comes around
+[02:28.96] If I'm getting over you
+[02:33.29] Or just pretending to
+[02:37.93] Be alright, convince myself I hate you
+[02:56.93] 
+[02:48.56] Can't get over you
+[02:52.77] No matter what I do
+[02:57.05] I know I should, but I could never hate you
+```
